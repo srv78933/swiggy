@@ -1,1 +1,1 @@
-i want to eat egg&chicken curry
+i want to eat egg&fish curry
